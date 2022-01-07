@@ -1,0 +1,5 @@
+- 👋 Hi, nice to meet you
+- 👀 Backend Developer
+- 🌱 Growing mooruk-mooruk
+- 💞️ Love to Learn
+- 📫 Wait for the day
